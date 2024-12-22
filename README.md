@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tonny's tech
 - 👀 I’m interested in making friends everywhere 
-- 🌱 I’m currently learning my home 
+- 🌱 I’m currently at home
 - 💞️ I’m looking to collaborate on making some files 
 - 📫 you can reach me using mobile number 0116 270088
 - or you search for mr._nobody on  instagram 
